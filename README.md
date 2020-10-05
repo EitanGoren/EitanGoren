@@ -1,3 +1,3 @@
 ### Hi there 👋
-- 📫 How to reach me: https://eitangoren.github.io
+- 📫 How to reach me: www.eitangoren.com
 
